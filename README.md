@@ -8,7 +8,7 @@
 - 👨‍💻 All of my projects are available at [https://linktr.ee/data_analyst_sid](https://linktr.ee/data_analyst_sid)
 - 📫 How to reach me **siddhanthraghav007@gmail.com**
 
-- 📄 Know about my experiences [file:///C:/Users/siddh/Downloads/SiddhanthRaghavResume.pdf](file:///C:/Users/siddh/Downloads/SiddhanthRaghavResume.pdf)
+- 📄 Know about my experiences https://www.canva.com/design/DAGM3wa9XQc/6YtUfYqm8x06N52Ib_nUhw/edit?ui=eyJEIjp7IlAiOnsiQiI6ZmFsc2V9fX0
 
 - ⚡ Fun fact **Insightful Analyst, Occasional Comedian**
 
