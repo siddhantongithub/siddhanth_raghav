@@ -11,7 +11,7 @@
 - 📄 Know about my experiences https://www.canva.com/design/DAGM3wa9XQc/6YtUfYqm8x06N52Ib_nUhw/edit?ui=eyJEIjp7IlAiOnsiQiI6ZmFsc2V9fX0
 
 - ⚡ Fun fact **Insightful Analyst, Occasional Comedian**
-
+ 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://linkedin.com/in/siddhanth-raghav" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="siddhanth-raghav" height="30" width="40" /></a>
