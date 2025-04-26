@@ -5,10 +5,10 @@
 
 - 💬 About me **I’m a passionate Data Analyst with a keen interest in transforming data into meaningful insights. I recently completed my Data Analyst Course, where I developed strong skills in: 📊 Data Analysis | 🐍 Python | 🗄️ SQL | 📈 Excel & Power Bi I enjoy solving complex problems, visualizing data trends, and making data-driven decisions. I’m excited to collaborate on projects, contribute to open-source, and continuously grow in the field of data analytics. 🔍 Currently: Exploring real-world projects to apply my skills 🌱 Learning: Advanced analytics and data storytelling 💡 Let’s connect: I’m always eager to learn and collaborate!**
   
-- 👨‍💻 All of my projects are available at [https://linktr.ee/data_analyst_sid](https://linktr.ee/data_analyst_sid)
+
 - 📫 How to reach me **siddhanthraghav007@gmail.com**
 
-- 📄 Know about my experiences https://www.canva.com/design/DAGM3wa9XQc/6YtUfYqm8x06N52Ib_nUhw/edit?ui=eyJEIjp7IlAiOnsiQiI6ZmFsc2V9fX0
+- 📄 Know about my experiences [https://www.canva.com/design/DAGM3wa9XQc/6YtUfYqm8x06N52Ib_nUhw/edit?ui=eyJEIjp7IlAiOnsiQiI6ZmFsc2V9fX0](https://www.canva.com/design/DAGlt85912w/1LwdAY3B1Tq5X6yyfly-Fw/view?utm_content=DAGlt85912w&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h8f857e942f)
 
 - ⚡ Fun fact **Insightful Analyst, Occasional Comedian**
  
