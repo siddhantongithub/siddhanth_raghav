@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **siddhanthraghav007@gmail.com**
 
-- 📄 Know about my experiences [https://www.canva.com/design/DAGM3wa9XQc/6YtUfYqm8x06N52Ib_nUhw/edit?ui=eyJEIjp7IlAiOnsiQiI6ZmFsc2V9fX0](https://www.canva.com/design/DAGlt85912w/1LwdAY3B1Tq5X6yyfly-Fw/view?utm_content=DAGlt85912w&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h8f857e942f)
+- 📄 Know about my experiences https://www.canva.com/design/DAGnBZ1RUtE/5kagFp-hpLhPnC3ZQ7wtYQ/edit?utm_content=DAGnBZ1RUtE&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 
 - ⚡ Fun fact **Insightful Analyst, Occasional Comedian**
  
