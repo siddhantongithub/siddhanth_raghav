@@ -10,6 +10,7 @@
 
 - 📄 Know about my experiences https://www.canva.com/design/DAGnBZ1RUtE/5kagFp-hpLhPnC3ZQ7wtYQ/edit?utm_content=DAGnBZ1RUtE&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 
+ 
 - ⚡ Fun fact **Insightful Analyst, Occasional Comedian**
  
 <h3 align="left">Connect with me:</h3>
